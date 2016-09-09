@@ -2,7 +2,7 @@
 
 En hyggelig improv-leg med en 4-5 deltagere af gangen.
 
-Baseret på [legen "Superheroes" fra Whose Line Is It Anyway](https://www.youtube.com/watch?v=ruRYqMva5U4&t=40s).
+Baseret på legen "Superheroes" fra Whose Line Is It Anyway: [1](https://www.youtube.com/watch?v=ruRYqMva5U4&t=40s), [2](https://www.youtube.com/watch?v=MaF29LimUHs)
 
 ## Procedure
 
