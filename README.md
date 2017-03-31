@@ -1,2 +1,3 @@
 # Leg
-Skriveøvelser, -lege, skuespilsøvelser, -lege, osv.
+
+DIKUrevyens samling af skriveøvelser, skrivelege, skuespilsøvelser, skuespilslege, osv.
